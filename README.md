@@ -1,4 +1,6 @@
-# SaiSays - Mobile Application
+# SaiSays - Sai Baba Devotional Mobile Application
+
+*Keywords: Sai Baba app, devotional mobile app, spiritual messages, daily prayers, Hindu devotional app, Sai Ram, Shirdi Sai Baba*
 
 ## 📱 Overview
 
