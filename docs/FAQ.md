@@ -21,4 +21,4 @@ Yes, SaiSays is completely free for all devotees.
 - 50MB storage space
 
 ## Keywords
-Sai Baba mobile app, devotional app download, spiritual app Android, Sai Ram app, Hindu devotional application, Shirdi Sai Baba app, free devotional app
+Saisays,sai says,Sai Baba mobile app, sathya sai baba messages,devotional app download, spiritual app Android, Sai Ram app, Hindu devotional application, Sai Baba app, free devotional app
